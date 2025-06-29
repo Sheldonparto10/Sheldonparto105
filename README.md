@@ -1,4 +1,4 @@
-#Hello! Welcome on my profile#
+#Hello! 
 
 *I'm teacher Partoredjo*
 
